@@ -11,5 +11,7 @@ What I Do?
 
 I am passionate about solving complex problems, reducing costs, and improving operational efficiency through data analysis. Always eager to learn and apply the latest trends in supply chain analytics!
 
+![Screenshot_5](https://github.com/user-attachments/assets/8290e17a-22ff-4ac4-94e7-2abb411d06fe)
+
 📩 Open to networking, collaboration, and freelance opportunities! Let’s connect! 🚀
 
